@@ -1,4 +1,4 @@
-
+professional Obsidian for Windows Utility | voice-notes + collaboration offers the most advanced Obsidian for Windows utility, with voice-notes and collaboration. Ideal for
 
 
 
